@@ -6,4 +6,4 @@ Latest Posts
 
 Latest News
 
-Follow mes
+Follow me
